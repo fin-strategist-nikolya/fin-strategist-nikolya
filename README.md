@@ -49,4 +49,6 @@
 
 ### 🤝 Let's connect
 
+[@fin-strategist-nikolya](https://github.com/fin-strategist-nikolya/)
+
 Always happy to discuss finance, technology, and ideas that shape the future of investing.
